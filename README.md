@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **pks8958saxena@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1xV3slUHwXmqrN6ehqmrr8ZlYLZSsq0fo/view?usp=sharing](https://drive.google.com/file/d/1xV3slUHwXmqrN6ehqmrr8ZlYLZSsq0fo/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1fzDIc-Acj4SAPQfr_VRDywQmcQIrT4Iy/view?usp=sharing](https://drive.google.com/file/d/1fzDIc-Acj4SAPQfr_VRDywQmcQIrT4Iy/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
