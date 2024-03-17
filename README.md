@@ -4,7 +4,7 @@
 <img align="right" alt="Coding" width="400" src="https://media0.giphy.com/media/qgQUggAC3Pfv687qPC/giphy.gif">
 - 🌱 I’m currently learning Microservices and React Js
 
-- 💬 Ask me about **Spring Boot, Java ,MongoDB**
+- 💬 Ask me about **Spring Boot, Microservices, Java **
 
 - 📫 How to reach me **pks8958saxena@gmail.com**
 
